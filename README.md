@@ -7,6 +7,7 @@ I'm Agent 9, but most shorten it to 'Agent' <br>
 - Linux
 - Maths
 - Anime
+
 and <b> absolutely love maids </b> :)
 
 ### I also
@@ -15,4 +16,4 @@ and <b> absolutely love maids </b> :)
 - read books
 
 ### Other
-[profile picture](https://www.pixiv.net/en/artworks/115818080)
+[profile picture](https://www.pixiv.net/en/artworks/115818080), [MyFigureCollection](https://myfigurecollection.net/profile/agent9)
